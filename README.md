@@ -1,5 +1,4 @@
 # hebbo-world
-this the beginner thingy
              🌸hebbo uwu it me @littleminyoongi🌸
 - my main interests lie in: 
 
